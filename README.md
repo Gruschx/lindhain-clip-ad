@@ -1,0 +1,1 @@
+Lindhain clip ad
